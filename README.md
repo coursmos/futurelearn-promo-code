@@ -25,6 +25,8 @@ Want the biggest savings possible? This rare **65% discount** is the highest ava
 
 What you'll save: Up to $97 on premium courses!
 
+***
+
 ### \[30% OFF\] FutureLearn First-Year Unlimited Annual Subscription
 
 If you're planning to take multiple courses throughout the year, this is the best value option. Get **30% off** your first year of Unlimited Annual access.
@@ -33,6 +35,8 @@ If you're planning to take multiple courses throughout the year, this is the bes
 **Regular price:** $459.99/year ($38.33/month)  
 **You pay:** Only $321.99/year ($26.83/month)
 
+***
+
 ### \[20% OFF\] FutureLearn Site-wide Discount Code
 
 This reliable code works on almost everything FutureLearn offers - perfect when you just need one specific course.
@@ -40,12 +44,16 @@ This reliable code works on almost everything FutureLearn offers - perfect when 
 **Coupon:** ```FUTURELEARN20```  
 **Expires:** April 16, 2025
 
+***
+
 ### \[FREE TRIAL\] FutureLearn 3-Day Free Access + 30% Off
 
 Want to try before you buy? Get a **free 3-day trial**, then enjoy **30% off** if you decide to continue with a subscription.
 
 **Coupon:** No code needed - automatically applied  
 **Perfect for:** First-time FutureLearn users
+
+***
 
 ### \[30% OFF\] FutureLearn Monthly Subscription Discount
 
@@ -55,6 +63,8 @@ Prefer not to commit to a full year? Get **30% off** your first two months of th
 **Regular price:** $69.99/month  
 **You pay:** Only $48.99/month for first two months
 
+***
+
 ### FutureLearn 5% Off Course Upgrades
 
 Are you currently a student? Verify your status through Student Beans and get an exclusive **5% discount** on course upgrades.
@@ -62,12 +72,16 @@ Are you currently a student? Verify your status through Student Beans and get an
 **How to claim:** Verify through Student Beans  
 **Eligibility:** Active students with valid .edu email
 
+***
+
 ### FutureLearn First Order Email Signup Bonus \[10% OFF\]
 
 Sign up for FutureLearn’s emails and get **10% off** your first order.
 
 **How to get it:** Subscribe to the FutureLearn newsletter  
 **Expires:** April 30, 2025
+
+***
 
 ## How to Apply Your FutureLearn Promo Code
 
